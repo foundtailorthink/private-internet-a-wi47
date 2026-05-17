@@ -1,10 +1,10 @@
-مميز PIA إضافة | تبديل الخادم + دعم L2TP هو أفضل PIA إضافة مع تبديل الخادم و دعم L2TP. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/private-internet-a-wi47/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
